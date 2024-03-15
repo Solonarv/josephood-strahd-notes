@@ -20,7 +20,7 @@ Quiyra seizes on his wording: Domain of Dread? are there more? R: yes, he's writ
 
 We decide to ask him about the [Fortunes](../Fortunes.md).
 
-1st card: could refer to any of the three towns of Barovia: Barovia, Vallaki, or ?Krezk?. It's probably Vallaki though. House of corruption isn't the church, no brothels there either. Maybe the inn? Unclear. If it's a noble house (as Areia suggests), probably either the Wachterhaus or the Vallakovich mansion. Quiyra: could the ghosts be non-literal? an echo of the past, or something? R: an old weapon, a suit of armor, a portrait? an old cupboard? A child wearing a sheet as a ghost disguise??
+1st card: could refer to any of the three towns of Barovia: Barovia, Vallaki, or Krezk. It's probably Vallaki though. House of corruption isn't the church, no brothels there either. Maybe the inn? Unclear. If it's a noble house (as Areia suggests), probably either the Wachterhaus or the Vallakovich mansion. Quiyra: could the ghosts be non-literal? an echo of the past, or something? R: an old weapon, a suit of armor, a portrait? an old cupboard? A child wearing a sheet as a ghost disguise??
 
 2nd card: Rictavio recalls the area around Krezk having wolf issues. Near Krezk is Lake Baratok, so probably there. Mother Night is a goddess that Barovians worship; the counterpart of the morning lord. She represents night and what is evil. She is close/similar to Shar.
 
